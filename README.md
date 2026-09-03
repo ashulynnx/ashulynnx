@@ -7,4 +7,4 @@
 
 
 
-[**strawpage**](https://otaniscool.straw.page)      ☘️      [**ata**](https://otaniscool.atabook.org)
+[**strawpage**](https://otaniscool.straw.page)      🐁      [**ata**](https://otaniscool.atabook.org)
