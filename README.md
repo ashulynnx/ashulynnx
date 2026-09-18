@@ -1,10 +1,6 @@
-<img width="582" height="331" alt="Image" src="https://github.com/user-attachments/assets/966a83dd-09ac-4fd6-b765-8c5900088130" />
+<img width="1079" height="742" alt="Image" src="https://github.com/user-attachments/assets/9d668084-0634-4715-9916-21df8214a315" />
 
 
  
 
-<div align="center">
-
-
-
-[**strawpage**](https://otaniscool.straw.page)      🐁      [**ata**](https://otaniscool.atabook.org)
+<div align="
