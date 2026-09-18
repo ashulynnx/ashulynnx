@@ -6,4 +6,4 @@
 <div align="
 
 
-     [**ata**](https://otaniscool.atabook.org)
+[**𝒜ta**](https://otaniscool.atabook.org)
