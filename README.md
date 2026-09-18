@@ -5,5 +5,3 @@
 
 <div align="
 
-
-[**𝒜ta**](https://otaniscool.atabook.org)
